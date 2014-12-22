@@ -35,11 +35,15 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A consultorie for all Christians Most godly and ernestly warnyng al people, to beware least they bea
+Epheſians the .iiij. iiI, beſeche you bretheen, bound in the lorde, that you walke worthely in the v
+1. ¶The copie of the Kynges Maieſties moſt gratious priuiledge.
+
 #####Body#####
-A consultorie for all Christians Most godly and ernestly warnyng al people, to beware least they bea
+
+1. A Conſultorie for al Chriſtians.
+
 #####Back#####
-A consultorie for all Christians Most godly and ernestly warnyng al people, to beware least they bea
+✚ Dieu et mon droit,QVI MAL Y PENS• HONY SOYT1. Peter. 2.¶Be ye ſubiecte to euery humayn creature fo
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
